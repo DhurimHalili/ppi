@@ -1,2 +1,2 @@
 # nice pp
-um dunno
+um so hackin this game ise kinda nice and yeah Dhurimi is owner.
